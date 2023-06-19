@@ -22,7 +22,7 @@ And you also can call it:
 
 ## More infomation
 
-I have a lot of Character.
+I have a lot of characters.
 
 ### Black Yen
 
