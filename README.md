@@ -10,7 +10,7 @@ A little impure soul in the world. (Covered with a little dust)
 
 Full name is "MoBaiYenLing-Ink&Soul".
 
-## About InkCat (Head)
+## About InkCat (Profile picture)
 
 It's a white furry cat. =O^w^O=
 
